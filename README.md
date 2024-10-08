@@ -1,1 +1,2 @@
 # studentai
+heyy buddy  
